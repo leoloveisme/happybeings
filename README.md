@@ -12,6 +12,19 @@ The project is a FREE OPEN non commercial not for profit project!
 
 Should you decide to contribute in / to the project, you will NOT receive ANY reward(s)!
 
+It would be ideal if we could win some intersex and queer writers for the project. 
+
+The objective of the book(s) to show that happy life without money is not only possible but absolutely possible. 
+
+Change management:
+
+1. write an amazing book / screenplay
+2. make an amazing film based on the book
+3. get people propagate the ideas from the book
+4. make the ideas from the book the new normal (create a new model which will make older models obsolete)
+
+****************
+
 You might also want to check out the Wiki: 
 
 https://github.com/leotheforth/happypeople/wiki 

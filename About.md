@@ -1,4 +1,6 @@
-The book / screenplay is about universes where money doesn't exist even as a term
+The book / screenplay is about universes where money doesn't exist even as a term.
+
+The objective of the book(s) to show that happy life without money is not only possible but absolutely possible.
 
 Steps needed for change:
 
