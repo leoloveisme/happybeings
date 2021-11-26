@@ -8,8 +8,12 @@ Feel free to translate into other languages and contribute in the existing ones.
 
 Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
 
+Feel free to fork or branch the story to your liking and if you are happy to just simply contribute, then by all means just contribute. 
 
-Are worlds without money possible?
-What, in your opinion, shall be done, to get there?
+The project is a FREE OPEN non commercial not for profit project. 
 
-We need to get rid of greed, violence, envy, jealousy 
+You might also want to check out the Wiki 
+
+https://github.com/leotheforth/happypeople/wiki 
+
+on Github.
