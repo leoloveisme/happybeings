@@ -6,14 +6,16 @@ Russian and English one
 
 Feel free to translate into other languages and contribute in the existing ones. 
 
-Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
-
 Feel free to fork or branch the story to your liking and if you are happy to just simply contribute, then by all means just contribute. 
 
-The project is a FREE OPEN non commercial not for profit project. 
+The project is a FREE OPEN non commercial not for profit project!
 
-You might also want to check out the Wiki 
+Should you decide to contribute in / to the project, you will NOT receive ANY reward(s)!
+
+You might also want to check out the Wiki: 
 
 https://github.com/leotheforth/happypeople/wiki 
 
 on Github.
+
+Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 

@@ -6,7 +6,7 @@ All sentient beings need to:
  
 + start caring about each other 
 + have collective good and wellbeing on mind as much as possible
-+ collaborate with each other on (crucial) tasks (at hand) without expectation of any reward(s)
++ collaborate & cooperate with each other on (crucial) tasks (at hand) without expectation of any reward(s)
 + strive perfection for oneself and everything and everyone around 
 
 Are worlds without money possible?
