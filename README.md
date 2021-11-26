@@ -12,7 +12,7 @@ The project is a FREE OPEN non commercial not for profit project!
 
 Should you decide to contribute in / to the project, you will NOT receive ANY reward(s)!
 
-It would be ideal if we could win some intersex and queer writers for the project. 
+It would be ideal if we could win some intersex and queer writers for the project, as well. 
 
 The objective of the book(s) to show that happy life without money is not only possible but absolutely possible. 
 
