@@ -16,6 +16,10 @@ We need to get rid of greed, violence, envy, jealousy.
 
 The story / stories has / have to be structured that way that the reader(s) will see that the immigration to other planets alone will not change anything if the current systems based on money and reward system are still intact. 
 
+Side note:
+
+There will be a lot of nudity in the book(s) and in the film. 
+
 Main characters as in the initial branch of the book: 
 (feel free to create your branch with amended characters and other names) 
 
@@ -24,10 +28,11 @@ Earthlings on the spaceship:
 
 
 
-
-Chen Mark Weizu-Brezzhikovski (if the character is white)
+Marc Wolfgang-Hans Weizu-Brezzhikovski (if the character is Asian)
+or 
+Chen Kubwa Weizu-Brezzhikovski (if the character is “white”)
 or
-Chen Mark White-Brezzhikovski (if the character is afroamerican male) 
+Chen Marc Wolfgang-Hans White-Brezzhikovski (if the character is afroamerican male) 
 Natural male being 
 Thinker
 
@@ -77,8 +82,18 @@ Young female Sai Ya
 
 
 
+
+
 Old male
+
+
+
+
 Child
+
+
+
+
 We are all the one
 
 Ability to communicate telepathically 
@@ -92,11 +107,21 @@ sleep
 
 They are originally from Earth. 
 
+Beings on XYZ can change the color and any other aspect of their appearance 
 
-for photos check out the document on Google: 
+Beings with 
 
-https://docs.google.com/document/d/1_gVW_69enyCLg1bDcbVX425mw45d58Uhf_9vzpXxFqU
+yellow / blue skin 
+orange / blue skin
+yellow / orange skin 
+etc
 
+with 
+
+4 and 6 hands
+wings 
+
+etc
 
 *********
 
@@ -144,7 +169,14 @@ And what was forgotten - disappears once and sometimes forever.
 
 House of meetings / House of knowledge - is the same place, where people meet to exchange ideas and learn from / teach each other. 
 
+Side note: 
 
+If the underlying systems will not change, the escape to Mars will not change anything; it will just prolong the “agony” of the current lifestyle, which in itself, some might argue is not too bad as the won time might yield the opportunity for the society on the other planet to heal and change. 
+
+
+
+
+ 
 
 
 
