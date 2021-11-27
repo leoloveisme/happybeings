@@ -25,6 +25,10 @@ Change management:
 
 ****************
 
+ALL photos used are just an example of how the characters will be described in the book and not represent or reflect the real people of whom these photos are!
+
+*****************
+
 You might also want to check out the Wiki: 
 
 https://github.com/leotheforth/happypeople/wiki 
