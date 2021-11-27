@@ -25,7 +25,7 @@ Change management:
 
 ****************
 
-ALL photos used are just an example of how the characters will be described in the book and not represent or reflect the real people of whom these photos are!
+ALL photos used are just an example of how the characters will be described in the book and the photos do NOT represent or reflect the real people of whom these photos are!
 
 *****************
 
