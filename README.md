@@ -1,4 +1,4 @@
-This is a project for the book / screen plays series called Happy People. 
+This is a project for the book / screenplay series called Happy People. 
 
 So far there are planned only two versions of the books:
 
@@ -14,7 +14,7 @@ Should you decide to contribute in / to the project, you will NOT receive ANY re
 
 It would be ideal if we could win some intersex and queer writers for the project, as well. 
 
-The objective of the book(s) to show that happy life without money is not only possible but absolutely possible. 
+The objective of the book(s) is to show that a happy life without money is not only possible but absolutely possible. 
 
 Change management:
 
@@ -32,3 +32,5 @@ https://github.com/leotheforth/happypeople/wiki
 on Github.
 
 Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
+
+
