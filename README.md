@@ -39,4 +39,7 @@ on Github.
 
 Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
 
+*****************
+
+P.S. Currently the newest updates are in the Google directory of this crowdwriting project. 
 
