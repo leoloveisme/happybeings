@@ -14,7 +14,9 @@ Should you decide to contribute in / to the project, you will NOT receive ANY re
 
 It would be ideal if we could win some intersex and queer writers for the project, as well. 
 
-The objective of the book(s) is to show that a happy life without money is not only possible but absolutely possible. 
+The objective of the book(s) is to show that a happy life without money is not only possible but absolutely possible 
+and 
+“move” / motivate people towards the change and desired outcome (which is a prosperous and fulfilling life without money on various planets and in various universes). 
 
 Change management:
 
