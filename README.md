@@ -1,3 +1,9 @@
+Current crowdwriting project directory on Google:
+
+https://drive.google.com/drive/folders/1qH28HQbzZ0-0NoG5oyZJheiq_reY1-Yy
+
+********************
+
 This is a project for the book / screenplay series called Happy People. 
 
 So far there are planned only two versions of the books:
