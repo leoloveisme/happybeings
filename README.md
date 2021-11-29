@@ -2,6 +2,13 @@ Current crowdwriting project directory on Google:
 
 https://drive.google.com/drive/folders/1qH28HQbzZ0-0NoG5oyZJheiq_reY1-Yy
 
+
+For brainstorming and ideas exchange please use Brainstorming.docx
+
+https://docs.google.com/document/d/1u7LA0ajV-uF-XKn_mwxerSWq5zZuuaJUrR285XUWSjw
+
+You can comment in this file. It is technically enabled to comment in this file.
+
 ********************
 
 This is a project for the book / screenplay series called Happy People. 
@@ -48,3 +55,4 @@ Should you have any questions and or suggestions, feel free to contact me on my 
 *****************
 
 P.S. Currently the newest updates are in the Google directory of this crowdwriting project. I sync the latest updates to Github project page as quickly as I can.
+
