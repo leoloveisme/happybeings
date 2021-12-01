@@ -27,15 +27,22 @@ Should you decide to contribute in / to the project, you will NOT receive ANY re
 
 It would be ideal if we could win some intersex and queer writers for the project, as well. 
 
+Should you decide to contribute to the project and bring an active team of writers, videographers, designers, etc - please feel free to ask for a separate branch of the project. 
+
+The project is meant to be multi-branching with various beginnings and various endings, pretty much like life itself. 
+
+The stories can be expanded into a multitude of various possibilities and ways. 
+Feel free to introduce new characters into the branches of the book.
+
 The objective of the book(s) is to show that a happy life without money is not only possible but absolutely possible 
 and 
 “move” / motivate people towards the change and desired outcome (which is a prosperous and fulfilling life without money on various planets and in various universes). 
 
-Change management:
+Change management framework for the current project:
 
 1. write an amazing book / screenplay
 2. make an amazing film based on the book
-3. get people propagate the ideas from the book
+3. get people (excited) to propagate the ideas from the book
 4. make the ideas from the book the new normal (create a new model which will make older models obsolete)
 
 ****************
