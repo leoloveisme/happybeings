@@ -35,7 +35,7 @@ Feel free to introduce new characters into the branches of the book.
 
 The objective of the book(s) is to show that a happy life without money is not only possible but absolutely possible 
 and 
-“move” / motivate people towards the change and desired outcome (which is a prosperous and fulfilling life without money on various planets and in various universes). 
+“move” / motivate people towards the change and desired outcome (which is a free, prosperous and fulfilling life without money on various planets and in various universes). 
 
 Change management framework for the current project:
 
