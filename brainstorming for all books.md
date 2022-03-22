@@ -128,35 +128,21 @@ And a couple of AI robots.
   
   
 
-**Human beings from the planet XYZ:**
-
-  
-  
+**Human looking beings from the planet XYZ:**
 
 ![[an var.jpg]]
 
 Young male An Var
 
-  
-  
-  
-  
-
 ![[sai ya.jpg]]
 
 Young female Sai Ya 
-
-  
-  
-  
-  
+ 
 
 ![[a ram.jpg]]
 
 A Ram (**one** of some **who did a lot and understood a lot**)
 
-  
-  
 
 ![[child XYZ.jpg]]]
 
@@ -166,7 +152,7 @@ Child
 
 Ya Sha & Kho Pa
 
-Brother & sister
+Sister (Ya Sha) & brother (Kho Pa)
   
   
 
@@ -407,3 +393,10 @@ Upload consciousness into the infinite wisdom
 Technical higher dimensions
 
 Spiritual higher dimensions
+
+
+Avatar 
+James Cameron
+
+
+Is telepathy international? intergalactical? 

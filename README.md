@@ -22,7 +22,7 @@ Should you decide to contribute to the project and bring an active team of write
 
 The project is meant to be multi-branching with various beginnings and various endings, pretty much like life itself. 
 
-It only HAS TO BE about living and / or universes without money
+It just HAS TO BE about living and / or universes without money
 
 The stories can be expanded into a multitude of various possibilities and ways. 
 
@@ -51,5 +51,5 @@ You might also want to check out the project Wiki here on Github:
 
 https://github.com/leotheforth/happypeople/wiki 
 
-Should you have any questions and or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
+Should you have any questions and / or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
 

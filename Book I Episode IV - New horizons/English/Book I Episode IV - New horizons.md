@@ -2,7 +2,7 @@
 
 ## New horizons
 
-Book I - Episode IV
+### Book I - Episode IV
 
-![[Index of contents]]
+![[Projects/Books & screenplays/Happy People/Book I Episode IV - New horizons/English/Index of contents]]
 

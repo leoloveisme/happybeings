@@ -4,13 +4,12 @@ There is always something going on, it's just a matter of where exactly do you d
 
 All in life is happening for you, happens for you and will happen for you - you just need to appreciate it.
 
-  
-
 We can choose the lives we want to live and in what shape, form and / or being. 
 
-We can decide to live one of our lives as a tree or as a fish or a bird or as a bug or as a ant. And sometimes some of us decide to live life as only one form of being.
+We can decide to live one of our lives as a tree or as a fish or a bird or as a bug or as a ant. 
+We can change as many times as we want to. And sometimes some of us decide to live life as only one form of being.
 
-  
+ We literally are all interconnected. 
 
 To form a mountain many beings are needed and these beings form a mountain. 
 
