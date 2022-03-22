@@ -1,4 +1,4 @@
-# Life of a conscious choice
+# Life of conscious choice(s)
 
 There is always something going on, it's just a matter of where exactly do you direct your attention to; then everything is communicating: the trees, the mushrooms, the bugs, the birds; everything communicates, speaks, sings, makes music and everything is recorded into energy. If you stop and learn how to be present in this very moment now and here, here and now and learn to listen and understand what’s going on in the world around you, you’ll see everything through the eyes of the universe. 
 
