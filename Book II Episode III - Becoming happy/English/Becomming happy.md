@@ -64,14 +64,15 @@ They are usually in the same building with schools and knowledge hubs.
 further in the book just schools
 Free prosperous open source cities
 
-Free prosperous open source structures for living 
+# Free prosperous open source structures for living 
 
 # Needs based economy
 
 # Manufacturing on demand
 
 AI manufacturing helpers 
-Food and drink
+
+# Food and drink
 
 # Distribution
 
