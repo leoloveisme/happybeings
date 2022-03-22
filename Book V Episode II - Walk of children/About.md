@@ -1,6 +1,6 @@
-Dominance of money
-Slaves forever?
-Autonomous people
-First free and prosperous open source city
-Walk of children
+# Happy People
+## Walk of children
+### Book V Episode II
+
+is about getting free from the slavery of money
  

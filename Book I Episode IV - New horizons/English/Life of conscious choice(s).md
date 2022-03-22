@@ -8,7 +8,7 @@ All in life is happening for you, happens for you and will happen for you - you 
 
 We can choose the lives we want to live and in what shape, form and / or being. 
 
-We can decide to live one of our lives as a tree or as a fish or a bird or as a bug or as a colony of ants. And sometimes some of us decide to live life as only one form of being.
+We can decide to live one of our lives as a tree or as a fish or a bird or as a bug or as a ant. And sometimes some of us decide to live life as only one form of being.
 
   
 
@@ -27,3 +27,6 @@ A: All the time we need - all the time of eternity.
   
 
 If one doesn’t see something, it doesn’t necessarily mean that it is not there; maybe you simply cannot see it yet. And once you can see it, you can see it. It is like with walking, once you can walk - you can walk. 
+
+
+Life as is. 

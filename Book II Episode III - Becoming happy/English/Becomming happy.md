@@ -1,8 +1,6 @@
-Happy people
-
-Becoming happy
-
-Book II Episode III
+# Happy people
+## Becoming happy
+### Book II Episode III
 
 
 
@@ -11,7 +9,7 @@ They started by building a free open source city in Africa which turned out to b
 These people consolidated the knowledge about the planning, building and other aspects of the city planning and building for various climates and climates zones. 
 They used the principles of permaculture along with technological advancements, which were in harmony and unison with nature.
 
-Culture
+# Culture
 
 Cooperate without any reward
 Cooperate (even) without (any expectation of) any reward
@@ -21,11 +19,12 @@ Create without any reward
 Create for the joy of creation
 
 and all that following the permaculture principles
-Religion
+
+# Religion
 
 There is no religion; just love and sincere caring for each other.
 
-Sex & sexuality
+# Sex & sexuality
 
 Naked body, nudity, sex, sexuality, gender and choice of personal identity are absolutely free from taboos and are at each being’s personal discretion and can be change at any given time, again at each being’s personal discretion. The clothes are still worn by some people, especially living in the coldest climate zones, however the majority of people are just naked most of the time. 
 
@@ -36,13 +35,14 @@ The live has become pro-choice at all times amongst all beings on the planet lon
 Artificially created genderless children / beings, later can decide what gender they want to become, should they want to become any gender. Some also may want to stay their whole life genderless. And that is absolutely OK, too.
 
 
-Housing
+# Housing
 
 People can choose how they want to live, who they want to live with, how long they want to live at any given location with a possibility to change their mind at any time. 
 Travelling
 
 to different planets is considered to be travelling. Travelling on Earth falls into the category of Transportation.
-Transportation
+
+# Transportation
 
 Travelling on Earth is possible in a superb quick way and in a variety of many slower sustainable nature friendly ways. 
 Under superb quick ways of travelling fall magnetic hyperloop trains and pods and inner planetary electric passenger rockets. 
@@ -52,30 +52,32 @@ Schools of happiness and happy life further in the book schools
 Knowledge hubs
 
 All information is freely available and can be accessed by anyone and anyone can contribute the changes to the information in the light of science, personal evaluated experiences etc. 
-House of meetings
+
+# Houses of meetings
 
 Are places where people come to meet each other and exchange ideas, pretty much like the schools
 Places of networking and socializing offline, face to face and embodied
 They are usually in the same building with schools and knowledge hubs.
-Schools (of happiness and happy life)
+
+# Schools (of happiness and happy life)
 
 further in the book just schools
 Free prosperous open source cities
 
-Free prosperous open source cities further in the book are (called) just cities. 
+Free prosperous open source structures for living 
 
-Needs based economy
+# Needs based economy
 
-Manufacturing on demand
+# Manufacturing on demand
 
 AI manufacturing helpers 
 Food and drink
 
-Distribution
+# Distribution
 
-Interpersonal communication 
+# Interpersonal communication 
 
-Holographic 3D telepresence communication 
+# Holographic 3D telepresence communication 
 
 
 ****************

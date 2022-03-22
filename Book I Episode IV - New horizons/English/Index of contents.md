@@ -4,4 +4,4 @@
 [[New horizons]]
 [[Beautiful new world]]
 [[Two civilisations on Earth]]
-[[Life of a conscious choice]]
+[[Life of conscious choice(s)]]
