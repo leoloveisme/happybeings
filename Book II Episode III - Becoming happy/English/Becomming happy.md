@@ -92,4 +92,12 @@ People would talk about these new cities and would come to live and contribute t
 We also addressed the psychological aspects of living peacefully and full of love for each other and all other beings, living on our planet. 
 
 All water which flows or is in the city is of drinking quality, which means you can drink from any water source in the city, which is located under the open skies.
+
+*************
+
+Free open source structures for living* are duplicated all over Earth
+Freedom on Earth
+
+* as opposed to cities, settlements, villages, etc
+
  

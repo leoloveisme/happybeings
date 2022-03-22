@@ -1,4 +1,5 @@
-Free open source structures for living* are duplicated all over Earth
-Freedom on Earth
+# Happy People
+## Becoming happy
+### Book II Episode III
 
-* as opposed to cities, settlements, villages, etc
+is about people becoming free and happy
