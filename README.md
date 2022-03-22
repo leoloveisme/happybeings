@@ -18,7 +18,7 @@ Should you decide to contribute in / to the project, you will NOT receive ANY re
 
 It would be ideal, if we could win some intersex and queer writers for the project, as well. 
 
-Should you decide to contribute to the project and bring an active team of writers, videographers, designers, etc - please feel free to ask for a separate branch of the project, if you want to.  
+Should you decide to contribute to the project and bring an active team of writers, videographers, designers, etc - please feel free to ask for a separate branch of the project, if you want to.
 
 The project is meant to be multi-branching with various beginnings and various endings, pretty much like life itself. 
 
