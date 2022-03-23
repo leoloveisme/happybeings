@@ -1,7 +1,6 @@
-# Happy people
+# New life on Mars 
 
-## New civilisation
+When we came to Mars we came here to create a new civilisation and we are determined to make it a reality. 
 
-### Book III Episode V
+Our mission was simulated several times using our most advanced systems and we pretty much knew what we: each of us and all of us had to do. 
 
-New life on Mars 
