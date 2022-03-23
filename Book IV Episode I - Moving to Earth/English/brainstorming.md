@@ -1,0 +1,1 @@
+Greed is a cause of destruction and money is it's tool 

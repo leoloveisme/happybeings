@@ -8,4 +8,5 @@ Create, co-create and cooperate without any reward
 Create and co-create for the joy of creation
 Cooperate for the joy of cooperation
 
-and all that following the permaculture principles
+and all that following the principles of global good and wellbeing at heart, mind and soul of each and every being / species
+

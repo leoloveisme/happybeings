@@ -1,0 +1,3 @@
+# Autonomous people
+
+And in the midst of it there was a group of people, who decided not to sleep, not to eat, not to drink for as long as they could; they also very well understood the damaging role of money and thus they were creating a new model of / for living by using money as little as possible. They also were experimenting with the sexuality because the energies which were set free were flowing in various directions and sex and sexuality were just some of these directions. 
