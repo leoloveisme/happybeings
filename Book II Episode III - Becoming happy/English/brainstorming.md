@@ -1,7 +1,7 @@
  
 I guess will book will become quite technical to read 
 
-Let's how it will develop
+Let's see how it will develop
 
 Open Ecology
 
