@@ -1,6 +1,7 @@
 [[Becomming happy]]
 [[Technologies]]
 [[AI]]
+[[Acceptance]]
 [[Cyborgs]]
 [[Robots]]
 [[Culture]]
