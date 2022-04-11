@@ -28,12 +28,15 @@ We are adapted to the chill, wind, rain, etc.
     • Do you understand what I’m thinking now?
     • Yes, I, we do.
 
-Because we are in the constant conscious presence and we live a conscious life we don’t need to meditate, unless we want to create something, which needs the power of many of us at the same time, additionally to the power of our planet(s), which is also us, then we collectively meditate something into existence.
+
+We don't meditate, because we're always conscious. 
+
+We are in the constant conscious presence and we live a conscious life that's we don’t meditate, unless we want to create something, then meditate something into existence using the all power around us: the power of our planet, our moons and sometimes, though very rarely, even the power or neighbouring planets.  
 
   
     • Energy is all around us, everything is energy.
     • Yes, we know that already and we have a healer amongst us, who can see and feel energies, to the degree which other of us cannot do.
-    • I guess it is her.
+    • It is this being there. 
     • Yes, you’re right.
 
     • Do you have any kind of entertainment?
@@ -41,9 +44,8 @@ Because we are in the constant conscious presence and we live a conscious life w
     • Oh, we have them as well. :)
     • And we love to solve mental tasks.
 
-We don’t have any taboos in our society. In our society everything is allowed, which is based on love and all our actions and everything in our “society” is based on love.
 
-  
+We don’t have any taboos in our society. In our society everything is allowed, which is based on love and all our actions and everything in our “society” is based on love.
 
 We don’t eat
 
@@ -51,26 +53,36 @@ We don’t drink
 
 We don’t sleep
 
+We hardly ever speak, because so much can get lost in the spoken communication, but we laugh a lot and often.
+
+All experiences are "automatically" (we don't have any machines for that) shared.  
+
+
+
+Years of our lives could be roughly divided into the following approximate structures:
   
 
-0 - 200 - childhood
+0 - 200 - childhood (time of observation and evaluating information)
 
-200 - 400 - youth
+200 - 400 - youth (time of experiments and trying out)
 
-400 - 600 - adulthood
+400 - 600 - adulthood (time of being and enjoyment)
 
-600 - 800 - aging
+600 - 800 - aging ()
 
-800 - 1000 - old age
+800 - 1000 - old age ()
 
-  
+
+Of course this structure is very approximate as everything is very individual and depends from many factors: as in what shape or form does a being want to live on the planet XYZ
+
 
 and
 
   
 
-Should we decide to live our whole life in the “human” form, when the time to leave the current body comes, we transcend into the energy of our planet(s) or into anything else; depending on personal desires and personal needs. We are not obliged to be and / or stay just in one form - we can also decide to change our appearance throughout our life several times. 
+Should we decide to live our whole life in the “human” form, when the time to leave the current body comes, because one or another decided so, we also can live in the chosen form eternally, we transcend into the energy of our planet(s) or into anything else; depending on personal desires and personal needs. We are not obliged to be and / or stay just in one form - we can also decide to change our appearance throughout our life several times. 
 
+Even if we "die" we don't die, we just change. To be reincarnated / re-born again. 
   
 
 Sometimes some of us decide to be reborn on our planet or on some other planet within or far away from our galaxy.

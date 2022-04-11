@@ -23,9 +23,47 @@ Q: How much time do you take for decision making?
 
 A: All the time we need - all the time of eternity. 
 
+
   
-
-If one doesn’t see something, it doesn’t necessarily mean that it is not there; maybe you simply cannot see it yet. And once you can see it, you can see it. It is like with walking, once you can walk - you can walk. 
-
-
 Life as is. 
+
+
+*******************
+
+Peijin Jon, Nick Amalia and Ya Sha. 
+
+
+We are the ones of the few, who were not corrected and screened during the conception and our genes were not manipulated and / or improved. We are the children of the natural conception and natural pregnancy by our biological mothers. 
+
+We are not so called designed children. 
+
+Did I want to change? I don't know anymore. I don't think so. I know that I'm unique as I am and I celebrate my uniqueness and I'm sure that Peijin also does that. 
+
+"Yes, I do" confirmed Peijin.
+
+There is no longer fear of the different on the Earth. There are many different life forms on Earth nowadays. Natural beings, artificially created beings, cyborgs, robots, etc and we all live in peace loving and appreciating each other. 
+
+We celebrate "things", we celebrate uniqueness, we celebrate similarity, we celebrate being alive, WE CELEBRATE. 
+
+Should I want to change the way I look I can do that. Thankfully the technologies allow us to do that. 
+
+"Do you want to change Ya (Sha)?" asked Nick. 
+
+"I haven't decided yet. I'm still gathering information and I'm also starting to try things out."
+
+"Do you enjoy being you?"
+
+Yes, I do. I enjoy being me as I am now and my brother decided to live the live in the form he has chosen.
+
+Can he change the form, whenever he wants to? 
+
+Of course he can. We can be whatever / whoever we want to be and we don't need any technical devices for that. 
+
+"Where is he now?"
+
+"He is here." and she made a gesture encompassing all space around them.  
+
+How about travelling? 
+
+Oh, we can travel, too, however we usually don't do that. We have everything we need on our planet and we can transfer ourselves to any location we want to on our planet or onto any other planet of our choice. We just need to "see" where we want to "go" and we "go" there. 
+

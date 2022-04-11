@@ -1,9 +1,12 @@
 
 [[Introduction]]
 [[Vast vast space]]
+[[Enjoying being]]
 [[New horizons]]
 [[Life of conscious choice(s)]]
 [[Beautiful new world]]
-[[Time to go back home]]
+[[Everything new for Quirong]]
+[[Time to say Goodbye]]
+[[Let's go home]]
 [[Back to Earth]]
 

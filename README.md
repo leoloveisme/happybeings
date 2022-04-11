@@ -1,3 +1,9 @@
+<quote>
+The moment we learn to create, co-create and cooperate without (even an expectation of) any reward(s) we'll (make a) leap into a new reality.
+<br><br>
+Leo Force
+</quote>
+<br><br>
 Current crowdwriting project directory on Google:
 
 https://drive.google.com/drive/folders/1CSJsCCqAO_pRBTLUGCamW0vXjIZdvcEN
@@ -6,13 +12,13 @@ For brainstorming and ideas exchange please use brainstorming document
 
 ********************
 
-This is a project for the book / screenplay series called Happy People. 
+This is a project for the book / screenplay series called **Happy People**. 
 
 Feel free to translate this book(s) into other languages and contribute in the existing ones. 
 
 Feel free to fork or branch the story to your liking and if you are happy to just simply contribute, then by all means just contribute. 
 
-The project is a FREE OPEN non commercial not for profit project!
+The project is a FREE, OPEN, non commercial, not for profit!
 
 Should you decide to contribute in / to the project, you will NOT receive ANY reward(s)!
 
@@ -43,13 +49,9 @@ Change management framework for the current project:
 
 ****************
 
-ALL photos used are just an example of how the characters will be described in the book and the photos do NOT represent or reflect the real people of whom these photos are!
+**Disclaimer:** ALL photos used are just an example of how the characters will be described in the book and the photos do NOT represent or reflect the real people of whom these photos are!
 
 *****************
-
-You might also want to check out the project Wiki here on Github: 
-
-https://github.com/leotheforth/happypeople/wiki 
 
 Should you have any questions and / or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
 

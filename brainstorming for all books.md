@@ -144,7 +144,7 @@ Young female Sai Ya
 A Ram (**one** of some **who did a lot and understood a lot**)
 
 
-![[child XYZ.jpg]]]
+![[child XYZ.jpg]]
 
 Child
 
@@ -152,7 +152,10 @@ Child
 
 Ya Sha & Kho Pa
 
-Sister (Ya Sha) & brother (Kho Pa)
+"Sister" (Ya Sha) & "brother" (Kho Pa)
+
+
+All beings are "sisters" and "brothers" on XYZ.
   
   
 
