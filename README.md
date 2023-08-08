@@ -1,7 +1,7 @@
 <quote>
 The moment we learn to create, co-create and cooperate without (even an expectation of) any reward(s) we'll (make a) leap into a new reality.
 <br><br>
-Leo Force
+Leo Love
 </quote>
 <br><br>
 Current crowdwriting project directory on Google:
@@ -12,7 +12,7 @@ For brainstorming and ideas exchange please use brainstorming document
 
 ********************
 
-This is a project for the book / screenplay series called **Happy People**. 
+This is a project for the book / screenplay series called **Happy Beings**. 
 
 Feel free to translate this book(s) into other languages and contribute in the existing ones. 
 
@@ -53,5 +53,5 @@ Change management framework for the current project:
 
 *****************
 
-Should you have any questions and / or suggestions, feel free to contact me on my e-mail: lzh_lad[at]gmx.de 
+Should you have any questions and / or suggestions, feel free to contact me on my e-mail: leoloveisme[at]gmail.com 
 
