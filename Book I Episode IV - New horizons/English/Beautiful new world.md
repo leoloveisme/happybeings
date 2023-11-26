@@ -109,7 +109,7 @@ Yes, it happens sometimes, however the energy of the soul is permanent and event
 
   
 
-And yes, sometimes it is difficult even for us to recognise each other after some many transformations in various beings and various universes. 
+And yes, sometimes it is difficult even for us to recognise each other after so(me /) many transformations in various beings and various universes. 
 
 And when we recognise each other we rejoice in joy and happiness, because we met someone we’ve already known for some many “years” and if we do not recognise each other - we rejoice in joy and happiness, because it is a starting point of us becoming one.
 
