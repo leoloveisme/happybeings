@@ -53,9 +53,9 @@ We don’t drink
 
 We don’t sleep
 
-We hardly ever speak, because so much can get lost in the spoken communication, but we laugh a lot and often.
+We hardly ever speak, because so much can get lost in the spoken communication, but we laugh a lot and often. We speak, when we cannot communicate telepathically and usually we do that with telepathy-receiving-impaired beings from other world / universes. Such beings are very rare, however they exist. Mostly it is curable, however we usually don't cure any beings, unless it is involuntary death situation and the mentally unconscious being is injured and / or needs to be saved. We can read even from mentally unconscious mind, unless it is actively blocked. Yes, some beings can do that, even when they are mentally unconscious.
 
-All experiences are "automatically" (we don't have any machines for that) shared.  
+All experiences are "automatically" (we don't have any machines for that) shared and saved into our conscious energy space.
 
 
 
