@@ -58,10 +58,14 @@ Robo, who will stay with the crew and will create another robot for the flight b
 
 The robots don't have a front or a back. The front can become the back within a second - the robot just needs to turn the head and hands-legs. 
 
+*******
 
-and the child will go to Earth with Chen Marc and Olga Ahlam. (?)
+The child will go to Earth with Chen Marc and Olga Ahlam. (?)
 
+Even as a child it possesses a whole lot of knowledge of the XYZ universe, because it is in an ever existing connection with the XYZ universe.
+The child will become the catalyst of even more radical positive changes on Earth 🌍 🌎 and in the Milky Way universe.
 
+********
 
 If one doesn’t see something, it doesn’t necessarily mean that it is not there; maybe you simply cannot see it yet. And once you can see it, you can see it. It is like with walking, once you can walk - you can walk. 
 
