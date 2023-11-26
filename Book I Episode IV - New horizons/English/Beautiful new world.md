@@ -31,7 +31,7 @@ We are adapted to the chill, wind, rain, etc.
 
 We don't meditate, because we're always conscious. 
 
-We are in the constant conscious presence and we live a conscious life that's we don’t meditate, unless we want to create something, then meditate something into existence using the all power around us: the power of our planet, our moons and sometimes, though very rarely, even the power or neighbouring planets.  
+We are in the constant conscious presence and we live a conscious life that's the reason / why we don’t meditate, unless we want to create something, then meditate something into existence using the all power around us: the power of our planet, our moons and sometimes, though very rarely, even the power or neighbouring planets.  
 
   
     • Energy is all around us, everything is energy.
