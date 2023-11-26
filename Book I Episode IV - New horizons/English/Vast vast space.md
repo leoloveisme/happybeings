@@ -8,7 +8,7 @@ Background music: The XX Intro by Laurent Zen
 
 We are still in space.
 
-If the planet wouldn’t be more colorful and it didn’t have two moons: a bule and an orange one we could’ve confused it for Earth. And at some rare occasions these moons might change their colors to: yellow, red and green and brown. 
+If the planet wouldn’t be more colorful and it didn’t have two moons: a blue and an orange one we could’ve confused it for Earth. And at some rare occasions these moons might change their colors to: yellow, red and green and brown. 
 
 Soon we’ll land on the planet, where many years ago we, Earthlings sent another spaceship, which was loaded with robots and a couple of cyborgs and androids. 
 
