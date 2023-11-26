@@ -16,7 +16,7 @@ The spaceship did an initial contact with Earth in which they sent a message of 
 
 After that the communication ceased to exist. 
 
-None of the robots and the spaceship became unresponsive. 
+All of the robots and the spaceship became unresponsive. 
 
 Our team is supposed to clarify what has happened to the spaceship and to the crew.
 
