@@ -3,7 +3,7 @@
 An Var and Sai Ya
 
 
-were young adults they went trough the periods of time of observation and evaluation of information (childhood) and time of experiments and trying out (youth)
+were young adults they went through the periods of time of observation and evaluation of information (childhood) and time of experiments and trying out (youth)
 
 and were in the time of just being and enjoying each other and the others, enjoying being together and with the others 
 
