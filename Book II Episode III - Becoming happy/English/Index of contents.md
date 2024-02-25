@@ -19,6 +19,7 @@
 [[Schools (of happiness and happy life)]]
 [[Freely accessible universal knowledge hubs]]
 [[Needs based economy]]
+[[Meaning based economy]]
 [[Manufacturing on demand]]
 [[Distribution]]
 [[Two civilisations on Earth]]
