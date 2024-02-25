@@ -13,6 +13,7 @@
 [[Transportation]]
 [[Communication]]
 [[Houses of meetings]]
+[[Houses of knowledge]]
 [[Interspecies communication]]
 [[Holographic 3D presence communication]]
 [[Schools (of happiness and happy life)]]
