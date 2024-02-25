@@ -1,3 +1,3 @@
 # Universal unconditional life standard
 
-Entitles every being to certain life standard and provides unconditionally accommodation and food
+Entitles every being living on the planet to certain life standard and provides unconditionally accommodation and food
