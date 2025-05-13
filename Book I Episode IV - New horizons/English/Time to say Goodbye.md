@@ -10,8 +10,8 @@ The whole previous expedition and all of our crew beside Str So Fle will go back
 ***********
 
 
-"Goodbye everyone." said Str and he hugged everyone of us one after another.  
+"Goodbye everyone." said Str and he hugged everyone of us one after another.
 
 Bye Str. 
 
-"He was indeed very soft" thought I in this very moment, when he hugged me.
+"He was indeed very soft" thought I this very moment, when he hugged me.

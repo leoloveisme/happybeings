@@ -30,7 +30,7 @@ Life as is.
 
 *******************
 
-Peijin Jon, Nick Amalia and Ya Sha. 
+Peijin, Jon, Nick, Amalia and Ya Sha. 
 
 
 We are the ones of the few, who were not corrected and screened during the conception and our genes were not manipulated and / or improved. We are the children of the natural conception and natural pregnancy by our biological mothers. 

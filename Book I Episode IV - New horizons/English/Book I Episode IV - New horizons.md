@@ -1,4 +1,4 @@
-# Happy People
+# Happy Beings
 
 ## New horizons
 
