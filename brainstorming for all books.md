@@ -1,43 +1,26 @@
-    
-
 **Place for brainstorming.**
-
-  
-  
 
 **Feel free to place your comments here.**
 
-  
-  
 
 Steps needed for change:
 
-  
-  
 
 All sentient beings need to:
 
 + start caring about each other 
 
-+ have collective good and wellbeing on mind as much as possible
++ have collective good and well-being on mind as much as possible
 
 + collaborate with each other on (crucial) tasks (at hand) without expectation of any reward(s)
 
-+ strive perfection for oneself and everything and everyone around 
-
-  
-  
++ strive perfection for oneself and everything and everyone around love and only loved based (there is no place for any violence in none of the places / universes / galaxies)
 
 Are worlds without money possible?
 
 What, in your opinion, shall be done, to get there?
 
-  
-  
-
 We need to get rid of greed, violence, envy, jealousy. 
-
-  
   
 
 The story / stories has / have to be structured that way that the reader(s) will see that the immigration to other planets alone will not change anything if the current systems based on money and reward system are still intact. 
@@ -64,12 +47,8 @@ To cooperate without any reward - is one of the goals of this projects
 
 (feel free to create your branch with amended characters and other names) 
 
-  
-  
 
 **Earthlings on the spaceship:**
-
-  
   
 
 Please describe the people in the photos
@@ -366,7 +345,7 @@ People moved to Earth, where they proceed to live the life style and the societa
   
   
 
-Describe in the books Marcian cities (in the past and in the future - as they were build in the future by immigrants from Earth)
+Describe in the books Martian cities (in the past and in the future - as they were build in the future by immigrants from Earth)
 
   
   
@@ -398,8 +377,21 @@ Technical higher dimensions
 Spiritual higher dimensions
 
 
+
+Is telepathy international? intergalactical? 
+
+
+**Potential team**
+
 Avatar 
 James Cameron
 
+Contact https://en.wikipedia.org/wiki/Elliot_Page for connections and potential involvement in the project
 
-Is telepathy international? intergalactical? 
+Recruitung 
+
+in the form of speaking and conversing with people
+
+Sect of genuinely happy people
+
+Dealing with bullies (people and countries allike)

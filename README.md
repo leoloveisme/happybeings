@@ -8,7 +8,7 @@ Current crowdwriting project directory on Google:
 
 https://drive.google.com/drive/folders/1CSJsCCqAO_pRBTLUGCamW0vXjIZdvcEN
 
-For brainstorming and ideas exchange please use brainstorming document
+For brainstorming and ideas exchange please use the brainstorming document(s)
 
 ********************
 
