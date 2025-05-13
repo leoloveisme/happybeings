@@ -1,10 +1,8 @@
 # Vast vast space
 
   
-
 Background music: The XX Intro by Laurent Zen 
 
-  
 
 We are still in space.
 
@@ -17,3 +15,4 @@ The spaceship did an initial contact with Earth in which they sent a message of 
 Our team has had the mission to find out, what has happened to the spaceship and to the crew.
 
 Pretty soon we will be landing on this beautiful colorful planet and hopefully we’ll get to understand, what actually has happened to the previous spaceship.
+
