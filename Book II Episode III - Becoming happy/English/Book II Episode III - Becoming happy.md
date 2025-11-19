@@ -4,4 +4,4 @@
 
 ### Book II Episode III
 
-![[Book II Episode III - Becoming happy/English/Index of contents]]
+![[Book II Episode III - Becoming happy/English/index of contents]]
