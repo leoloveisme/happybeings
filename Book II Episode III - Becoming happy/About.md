@@ -1,7 +1,7 @@
 # Happy People
-## Becoming happy
+## Becoming happy (Blueprint for new civilization(s))
 ### Book II Episode III
 
-is about people becoming free and happy
+is about people becoming free and happy once the money was eliminated
 
-Blueprint for the new civilization 
+Blueprint for new civilization(s) 

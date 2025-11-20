@@ -4,9 +4,10 @@ The moment we learn to create, co-create and cooperate without (even an expectat
 Leo Love
 </quote>
 <br><br>
-Current crowdwriting project directory on Google:
 
-https://drive.google.com/drive/folders/1CSJsCCqAO_pRBTLUGCamW0vXjIZdvcEN
+I used to have a link to a co-writing space on Google Drive here, which I took down now to avoid very different content versions. 
+
+Please use this resource for contributing and co-creating.
 
 For brainstorming and ideas exchange please use the brainstorming document(s)
 
@@ -16,7 +17,7 @@ This is a project for the book / screenplay series called **Happy Beings**.
 
 Feel free to translate this book(s) into other languages and contribute in the existing ones. 
 
-Feel free to fork or branch the story to your liking and if you are happy to just simply contribute, then by all means just contribute. 
+Feel free to fork or branch the story to / of your liking and if you are happy to just simply contribute, then by all means just contribute. 
 
 The project is a FREE, OPEN, non commercial, not for profit!
 
@@ -26,9 +27,9 @@ It would be ideal, if we could win some intersex and queer writers for the proje
 
 Should you decide to contribute to the project and bring an active team of writers, videographers, designers, etc - please feel free to ask for a separate branch of the project, if you want to.
 
-The project is meant to be multi-branching with various beginnings and various endings, pretty much like life itself. 
+The project can be multi-branching with various beginnings and various endings, pretty much like life itself. 
 
-It just HAS TO BE about living and / or universes without money
+It just HAS TO BE about living on planet(s) where money doesn't exists and / or universes without money.
 
 The stories can be expanded into a multitude of various possibilities and ways. 
 
