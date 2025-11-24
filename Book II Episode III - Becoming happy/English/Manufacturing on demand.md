@@ -1,7 +1,5 @@
 # Manufacturing on demand
 
-Can be done using so called [[AI manufacturing helpers]]
+Can be done using so called [[AI product creation and manufacturing helpers]]
 
-Whatever one needs one can lay out the idea / demand and work together with AI and maybe other beings on creating the desired product(s)
-
-The demand have to be real and necessery 
+Whatever one needs one can lay out the idea / one's demand and work together with AI and maybe with other beings on creating the desired product(s)
