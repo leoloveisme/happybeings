@@ -1,1 +1,0 @@
-# Meaning based economy
