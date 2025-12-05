@@ -54,5 +54,9 @@ Change management framework for the current project:
 
 *****************
 
+YES, you ABSOLUTELY can use AI to consult you and to help you writing. 
+
+*****************
+
 Should you have any questions and / or suggestions, feel free to contact me on my e-mail: leoloveisme[at]gmail.com 
 
