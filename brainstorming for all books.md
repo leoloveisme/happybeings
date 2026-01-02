@@ -109,9 +109,9 @@ And a couple of AI robots.
 
 **Human looking beings from the planet XYZ:**
 
-![[an var.jpg]]
+![[col an.jpg]]
 
-Young male An Var
+Young male Col An
 
 ![[sai ya.jpg]]
 
