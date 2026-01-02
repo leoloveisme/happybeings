@@ -61,7 +61,7 @@ Of course he can. We can be whatever / whoever we want to be and we don't need a
 
 "Where is he now?"
 
-"He is here." and she made a gesture encompassing all space around them.  
+"He is here." and she made a gesture encompassing all space around them.
 
 How about travelling? 
 

@@ -12,6 +12,8 @@ Soon we’ll land on the planet, where many years ago we, Earthlings sent anothe
 
 The spaceship did an initial contact with Earth in which they sent a message of a successful landing, that the planet is suitable for living: it has breathable oxygen and the gravity which is very close to the one on Earth and it was the one and only message we received. After that the communication ceased to exist. All of the robots and the spaceship became unresponsive. 
 
+(the whole crew went silent and disappeared)
+
 Our team has had the mission to find out, what has happened to the spaceship and to the crew.
 
 Pretty soon we will be landing on this beautiful colorful planet and hopefully we’ll get to understand, what actually has happened to the previous spaceship.
