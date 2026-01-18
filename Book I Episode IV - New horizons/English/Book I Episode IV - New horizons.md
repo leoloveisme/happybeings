@@ -1,28 +1,464 @@
-# Happy Beings
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/English/title.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/English/title.md)
+
+## Book I Episode IV - New horizons
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/English/table of contents.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/English/table of contents.md)
+
+## Table of contents
+
+Introduction
+
+Vast vast space
+
+Enjoying being 
+
+New horizons
+
+Life of conscious choice(s)
+
+Beautiful new world
+
+Everything new for Quirong
+
+Time to say Goodbye
+
+Let's go home
+
+Back to Earth
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Introduction.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Introduction.md)
+
+## Introduction
+
+# Introduction
+
+This is the book about universes without money and at this place you actually
+could close the book, because it is really what in the essence the book is
+about or you can keep reading about the characters and their journeys in these
+universes as the saga tells some stories about several various wonderful beings.
+
+Some of the characters of the story are: an intersex being, an artificially
+created / grown female being with enhanced features and capabilities, a
+gorgeous and stunningly beautiful transwoman and absolutely “normal” male
+being, an older male, a "child", several lovers and other wonderful beings of
+all possible body types and colours. There are blue beings, yellow and
+multicoloured beings in the story, a blue moon and an orange moon, which change
+their colours and vast cosmos with it’s endless stars and universes.
+
+The main objective of the book is to show you as a reader that living a free
+and happy life in the world where money doesn't exist even as a term is not
+only, but absolutely possible and hopefully you can read in the book how you,
+yes you the one, who is reading this book, can come to such a (way of) living,
+too.
+
+If you want to contribute to the story you can. Please read README for more
+information.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Vast vast space.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Vast vast space.md)
+
+## Vast vast space
+
+# Vast vast space
+
+Background music: The XX Intro by Laurent Zen 
+
+We are still in space.
+
+If the planet wouldn’t be more colorful and it didn’t have two moons: a blue
+and an orange one, we could’ve confused it for Earth. And as we'll get to learn
+later,at some (rare) occasions these moons might / would change their colors
+to: yellow, red and green and brown. 
+
+Soon we’ll land on the planet, where many years ago we, Earthlings sent another
+spaceship, which was loaded with robots and a couple of cyborgs and androids.
+The spaceship did an initial contact with Earth in which they sent a message of
+a successful landing, that the planet is suitable for living: it has breathable
+oxygen and the gravity which is very close to the one on Earth and it was the
+one and only message we received. After that the communication ceased to exist.
+All of the robots and the spaceship became unresponsive. 
+
+(the whole crew went silent and disappeared)
+
+Our team has had the mission to find out, what has happened to the spaceship
+and to the crew.
+
+Pretty soon we will be landing on this beautiful colorful planet and hopefully
+we’ll get to understand, what actually has happened to the previous spaceship.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Enjoying being.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Enjoying being.md)
+
+## Enjoying being
+
+# Enjoying being
+
+Col An and Sai Ya
+
+were young adults they went through the periods of time of observation and
+evaluation of information (childhood) and time of experiments and trying out
+(youth)
+
+and were in the time of just being and enjoying each other and the others,
+enjoying being together and with the others 
+
+They were enjoying
+
+It was a(nother) great evening. Every evening on XYZ is great. And they were
+playing. They were running and kissing and hugging and running again. 
+
+They enjoyed their planet and both moons of the planet. (The blue and the
+orange one, which would change colours and become the blue one -> green or
+brown and the orange one -> yellow or red) 
+
+Some beings would change the colours of their skin to match the planet's moons
+colours and would become orange and blue, yellow and blue, yellow and green,
+blue and red, etc
+
+Now they run to the sea to take a swim and have sex there.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/New horizons.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/New horizons.md)
 
 ## New horizons
 
-### Book I - Episode IV
+# New horizons
 
-![[Book I Episode IV - New horizons/English/Index of contents]]
+Background music: ???
+
+Collective mind and energy of XYZ: "Shall we contact them?" Collective mind and
+energy of XYZ: "We'll let them come and will communicate with them once they
+come."
+
+- What's happened to the previous expedition?
+- We switched everything off.
+- Why?
+- To keep our world undisturbed. 
+- Can we see it?
+- Of course.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Life of conscious choice(s).md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Life of conscious choice(s).md)
+
+## Life of conscious choice(s)
+
+# Life of conscious choice(s)
+
+There is always something going on, it's just a matter of where exactly do you
+direct your attention to; then everything is communicating: the trees, the
+mushrooms, the bugs, the birds; everything communicates, speaks, sings, makes
+music and everything is recorded into energy. If you stop and learn how to be
+present in this very moment now and here, here and now and learn to listen and
+understand what’s going on in the world around you, you’ll see everything
+through the eyes of the universe. 
+
+All in life is happening for you, happens for you and will happen for you - you
+just need to appreciate it.
+
+We can choose the lives we want to live and in what shape, form and / or being. 
+
+We can decide to live one of our lives as a tree or as a fish or a bird or as a
+bug or as a ant. We can change as many times as we want to. And sometimes some
+of us decide to live life as only one form of being.
+
+We literally are all interconnected. 
+
+To form a mountain many beings are needed and these beings form a mountain. 
+
+Sometimes one (or several) of the beings “breaks away” from the mountain and it
+has an effect on the mountain and the surroundings. The same applies to the
+seas and the oceans. 
+
+Our whole planet is a living being, comprised of many various individual beings
+and together we create harmony and live in it.
+
+Q: How much time do you take for decision making?
+
+A: All the time we need - all the time of eternity. 
+
+Life as is. 
+
+- - -
+Peijin, Jon, Nick, Amalia and Ya Sha. 
+
+We are the ones of the few, who were not corrected and screened during the
+conception and our genes were not manipulated and / or improved. We are the
+children of the natural conception and natural pregnancy by our biological
+mothers. 
+
+We are not so called designed children. 
+
+Did I want to change? I don't know anymore. I don't think so. I know that I'm
+unique as I am and I celebrate my uniqueness and I'm sure that Peijin also does
+that. 
+
+"Yes, I do" confirmed Peijin.
+
+There is no longer fear of the different on the Earth. There are many different
+life forms on Earth nowadays. Natural beings, artificially created beings,
+cyborgs, robots, etc and we all live in peace loving and appreciating each
+other. 
+
+We celebrate "things", we celebrate uniqueness, we celebrate similarity, we
+celebrate being alive, WE CELEBRATE. 
+
+Should I want to change the way I look I can do that. Thankfully the
+technologies allow us to do that. 
+
+"Do you want to change Ya (Sha)?" asked Nick. 
+
+"I haven't decided yet. I'm still gathering information and I'm also starting
+to try things out."
+
+"Do you enjoy being you?"
+
+Yes, I do. I enjoy being me as I am now and my brother decided to live the live
+in the form he has chosen.
+
+Can he change the form, whenever he wants to? 
+
+Of course he can. We can be whatever / whoever we want to be and we don't need
+any technical devices for that. 
+
+"Where is he now?"
+
+"He is here." and she made a gesture encompassing all space around them.
+
+How about travelling? 
+
+Oh, we can travel, too, however we usually don't do that. We have everything we
+need on our planet and we can transfer ourselves to any location we want to on
+our planet or onto any other planet of our choice. We just need to "see" where
+we want to "go" and we "go" there.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Beautiful new world.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Beautiful new world.md)
+
+## Beautiful new world
+
+# Beautiful new world
+
+Background music:
+
+Beautiful New World / Home Sweet Home Danny Elfman
+
+On planet XYZ
+
+Beings on planet XYZ don’t wear clothes. 
+
+They have bodies of all possible colors and in various shapes and forms. 
+
+How do you warm yourself up?
+
+We are adapted to the chill, wind, rain, etc.
+
+```
+• Can you speak?
 
 
-![[Introduction]]
+• Yes, we can speak, however because we communicate mostly telepathically, there is no need for us to speak.
 
-![[Vast vast space]]
 
-![[Enjoying being]]
+• Do you understand what I’m thinking now?
 
-![[New horizons]]
 
-![[Life of conscious choice(s)]]
+• Yes, I, we do.
 
-![[Beautiful new world]]
 
-![[Everything new for Quirong]]
 
-![[Time to say Goodbye]]
 
-![[Let's go home]]
+```
+We don't meditate, because we're always conscious. 
 
-![[Back to Earth]]
+We are in the constant conscious presence and we live a conscious life that's
+the reason / why we don’t meditate, unless we want to create something, then
+meditate something into existence using the all power around us: the power of
+our planet, our moons and sometimes, though very rarely, even the power or
+neighbouring planets.
+
+```
+• Energy is all around us, everything is energy.
+
+
+• Yes, we know that already and we have a healer amongst us, who can see and feel energies, to the degree which other of us cannot do.
+
+
+• It is this being there. 
+
+
+• Yes, you’re right.
+
+
+
+• Do you have any kind of entertainment?
+
+
+• Yes, we have choreoyogic dances.
+
+
+• Oh, we have them as well. :)
+
+
+• And we love to solve mental tasks.
+
+
+
+
+```
+We don’t have any taboos in our society. In our society everything is allowed,
+which is based on love and all our actions and everything in our “society” is
+based on love.
+
+We don’t eat
+
+We don’t drink
+
+We don’t sleep
+
+We hardly ever speak, because so much can get lost in the spoken communication,
+but we laugh a lot and often. We speak, when we cannot communicate
+telepathically and usually we do that with telepathy-receiving-impaired beings
+from other world / universes. Such beings are very rare, however they exist.
+Mostly it is curable, however we usually don't cure any beings, unless it is
+involuntary death situation and the mentally unconscious being is injured and /
+or needs to be saved. We can read even from mentally unconscious mind, unless
+it is actively blocked. Yes, some beings can do that, even when they are
+mentally unconscious.
+
+All experiences are "automatically" (we don't have any machines for that)
+shared and saved into our conscious energy space.
+
+Years of our lives could be roughly divided into the following approximate
+structures:
+
+0 - 200 - childhood (time of observation and evaluating information)
+
+200 - 400 - youth (time of experiments and trying out)
+
+400 - 600 - adulthood (time of being and enjoyment)
+
+600 - 800 - aging ()
+
+800 - 1000 - old age ()
+
+Of course this structure is very approximate as everything is very individual
+and depends from many factors: as in what shape or form does a being want to
+live on the planet XYZ
+
+and
+
+Should we decide to live our whole life in the “human” form, when the time to
+leave the current body comes, because one or another decided so, we also can
+live in the chosen form eternally, we transcend into the energy of our
+planet(s) or into anything else; depending on personal desires and personal
+needs. We are not obliged to be and / or stay just in one form - we can also
+decide to change our appearance throughout our life several times. 
+
+Even if we "die" we don't die, we just change. To be reincarnated / re-born
+again. 
+
+Sometimes some of us decide to be reborn on our planet or on some other planet
+within or far away from our galaxy.
+
+We all are equal: starting from any child and the oldest of the old.
+
+We preserve our knowledge, which is accessible by anyone at any given time.
+
+It is in the information field all around us.
+
+Can a “soul” (energy of a being) be lost? Can a soul be lost if a soul from the
+planet XYZ decides to be reborn / reincarnated on some other planet outside of
+XYZ planet’s galaxy? Can the contact with this soul be lost?
+
+Yes, it happens sometimes, however the energy of the soul is permanent and
+eventually this energy will find the way back home, whichever location it
+chooses as home and the soul will be reincarnated back into being - being
+whatever it wants to be.
+
+And yes, sometimes it is difficult even for us to recognise each other after
+so(me /) many transformations in various beings and various universes. 
+
+And when we recognise each other we rejoice in joy and happiness, because we
+met someone we’ve already known for some many “years” and if we do not
+recognise each other - we rejoice in joy and happiness, because it is a
+starting point of us becoming one.
+
+Beings on the planet could take literally any appearance. They could be trees,
+stones, water that flows on the planet and even air and they could literally be
+any moving and breathing being.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Everything new for Quirong.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Everything new for Quirong.md)
+
+## Everything's new for Quirong
+
+# Everything new for Quirong
+
+Quirong you know that you have to be deconstructed to become one of us. Are you
+sure that you want to do that? asked Ya (Sha). Because only once dissolves
+oneself in everything, one becomes everything. "Absolutely." answered Quirong.
+"I do." "Do you know in what kind of shape do you want to be once the
+deconstruction is completed?" "I'll be me, i.e. in my shape and form, however
+I'll be both strong, soft and flexible and I want to have the same organic
+brain like you have Ya and be organic, like the majourity of you ones, who move
+as quickly as some gentle winds" answered Quirong "and I'll have a new name.
+I'll be Str (pronounced "styr") So Fle" he said.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Time to say Goodbye.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Time to say Goodbye.md)
+
+## Time to say Goodbye
+
+# Time to say "Goodbye"
+
+"We are originally from Earth." said A Ram. "Long long time ago we were
+transported here"
+
+- - -
+The whole previous expedition and all of our crew beside Str So Fle will go
+back to Earth tomorrow. 
+
+- - -
+"Goodbye everyone." said Str and he hugged everyone of us one after another.
+
+Bye Str. 
+
+"He was indeed very soft" thought I this very moment, when he hugged me.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Let's go home.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Let's go home.md)
+
+## Let's go home
+
+# Let's go home
+
+Let's go home.
+
+- - -
+
+[/home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Back to Earth.md](file:///home/lad/Dropbox/content creation/Happy Beings in Crowdly/Book I Episode IV - New horizons/English/chapters/Back to Earth.md)
+
+## Back to Earth
+
+# Back to Earth
+
+Background music:
+
+Beautiful New World / Home Sweet Home Danny Elfman
+
+Life on Earth is pleasant and amazing, however after our expedition to planet
+XYZ I understand that we still have a long way to go.
+

@@ -1,7 +1,6 @@
-Currently only Obsidian is capable of more or less properly displaying the master file content and structure 
+As **Crowdly** is maturing we're gradually moving it's development into Crowdly
+infrastructure. 
 
-It is not ideal, however at least it is something
-
-For other book projects I'm still using LibreOfiice master file functionality and so far it works quite alright
-
+**Crowdly desktop app** is being used instead of Obsidian, because Crowdly
+desktop app is maturing for master document usage. 
 
