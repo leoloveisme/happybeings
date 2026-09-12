@@ -283,8 +283,10 @@ When time comes to leave current body:
 
 **Arrival:**
 - XYZ is beautiful, clearly inhabited, clearly advanced
-- First scans: robots intact but sleeping/powered down (ability to restart is blocked; how? by whom? this is unknown)
-- Decision to land
+<!-- - First scans: robots intact but sleeping/powered down (ability to restart is blocked; how? by whom? this is unknown) -->
+- The collective mind of XYZ has hidden the first expedition completely; no
+  Earth scan can locate the ship or its crew
+- Decision to land after receiving an invitation from XYZ
 
 **First Contact:**
 - XYZ beings approach (naked, some clearly genderless, multi-colored, various forms)
@@ -300,7 +302,8 @@ When time comes to leave current body:
 - Offers to be guide/friend
 
 **The Truth:**
-- "We put them to sleep"
+<!-- - "We put them to sleep" -->
+- "We hid them. An Var will take you to them when you are ready."
 - Crew's confusion → concern
 - Gentle revelation: Earth's methods were intrusive
 - Crew's journey: defensiveness → horror → humility
@@ -461,7 +464,10 @@ Olga realizes she's never mourned not participating in her own creation.
 **Progression Stage:** Transformation (Awe)
 
 **Finding the First Expedition:**
-- Crew finds sleeping robots/androids from **first** expedition
+<!-- - Crew finds sleeping robots/androids from **first** expedition
+- XYZ beings wake them carefully -->
+- An Var takes the crew to the hidden first expedition in a later chapter
+- The collective mind of XYZ reveals the sleeping robots/androids only then
 - XYZ beings wake them carefully
 - **Quirong (from second expedition, traveling with crew)** observes this
 - Extended time on XYZ awakens something in Quirong
@@ -962,6 +968,17 @@ See "Planet XYZ - Detailed Profile" section
 - GPL licensed (free forever)
 - Show that systems change is necessary, not just location change
 
+### Revision Preservation Rule
+
+Do not delete existing creative input when revising project documents.
+
+- Comment out or strike through superseded text.
+- Add the new canonical text beside or after it.
+- Keep original notes, dialogue, imagery, music references, and alternate ideas
+  available for future novel, screenplay, and film development.
+- Keep all text under a `Reference` heading visible and unstruck. Only
+  superseded prose in the active chapter body should be struck through.
+
 ### Tone & Approach
 
 **Not preachy or didactic:**
@@ -1053,7 +1070,9 @@ See "Planet XYZ - Detailed Profile" section
 - Col An and Sai Ya playing/celebrating (running, kissing, swimming, sex in sea)
 
 ### Need Development
-- Earth crew discovering robots asleep
+<!-- - Earth crew discovering robots asleep -->
+- An Var taking the crew to the hidden first expedition, and XYZ revealing the
+  sleeping robots/androids
 - First telepathic share (Peijin Jon)
 - An Var asking "why do you ask questions instead of knowing?"
 - Olga and An Var's deep conversation about creation/choice
