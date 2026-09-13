@@ -1,5 +1,4 @@
-# Back to Earth
-# Back on Earth
+# Back to Earth / Back on Earth
 
 Earth appeared first as a blue brightness in the dark.
 
@@ -175,6 +174,8 @@ After the journey to XYZ, Chen understood that Earth still had a long way to go.
 
 And the journey, he knew now, was only beginning.
 
+<!--
+
 ## Reference
 
 Initial title: Back to Earth
@@ -190,3 +191,5 @@ Beautiful New World / Home Sweet Home Danny Elfman
 Life on Earth is pleasant and amazing, however after our expedition to planet XYZ I understand that we still have a long way to go.
 Life on Earth is pleasant and amazing, however after our expedition to planet
 XYZ I understand that we still have a long way to go.
+
+-->

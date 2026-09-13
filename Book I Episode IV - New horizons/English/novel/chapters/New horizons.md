@@ -206,6 +206,8 @@ a road of changing colour across the sea.
 Chen looked once toward *Second Horizon*, white and unfamiliar against the
 living shore. Then he followed An Var into the trees.
 
+<!--
+
 ## Reference
 
 Initial text:
@@ -239,3 +241,5 @@ Superseded canon note:
   meet you.
 - Can we see it?
 - Not yet. An Var will take you there later, when you are ready.
+
+-->

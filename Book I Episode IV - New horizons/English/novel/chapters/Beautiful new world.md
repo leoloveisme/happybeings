@@ -1,5 +1,4 @@
 # Beautiful new world
-
   
 ## Record of meaningful encounter: Olga Ahlam Pelin-Lurie
 
@@ -161,6 +160,8 @@ Olga placed one hand over the navigation lights beneath her wrist. They shone so
 
 For the first time, she did not see them only as something given to her. She saw them as something she could carry into whatever she chose next.
 
+<!--
+
 ## Reference
 
 Initial text:
@@ -279,3 +280,5 @@ And yes, sometimes it is difficult even for us to recognise each other after so(
 And when we recognise each other we rejoice in joy and happiness, because we met someone we’ve already known for some many “years” and if we do not recognise each other - we rejoice in joy and happiness, because it is a starting point of us becoming one.
 
 Beings on the planet could take literally any appearance. They could be trees, stones, water that flows on the planet and even air and they could literally be any moving and breathing being.
+
+-->

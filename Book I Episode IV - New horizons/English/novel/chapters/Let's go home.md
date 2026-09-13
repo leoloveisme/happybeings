@@ -149,11 +149,15 @@ Then Olga did.
 
 “Let’s go home.”
 
+<!--
+
 ## Reference
 
 Initial text:
 
+Let's go home.
 
 Let's go home.
 Let's go home.
-Let's go home. 
+Let's go home.
+-->

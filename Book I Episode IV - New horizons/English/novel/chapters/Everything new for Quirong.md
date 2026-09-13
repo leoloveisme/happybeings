@@ -231,6 +231,8 @@ Str So Fle looked at Ya Sha.
 
 Ya Sha’s smile was answer enough.
 
+<!--
+
 ## Reference
 
 Initial text:
@@ -248,4 +250,6 @@ brain like you have Ya and be organic, like the majourity of you ones, who move
 as quickly as some gentle winds" answered Quirong "and I'll have a new name.
 I'll be Str (pronounced "styr") So Fle" he said.
 I'll be Str (pronounced "styr") So Fle" he said.
-I'll be Str (pronounced "styr") So Fle" he said. 
+I'll be Str (pronounced "styr") So Fle" he said.
+
+-->

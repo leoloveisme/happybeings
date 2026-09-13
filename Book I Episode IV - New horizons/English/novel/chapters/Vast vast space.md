@@ -1,6 +1,5 @@
 # Vast vast space
 
-  
 Background music: The XX Intro by Laurent Zen 
 
 ## Record of meaningful encounter: Olga Ahlam Pelin-Lurie
@@ -235,6 +234,8 @@ Below them, the orange moon began to rise over the sea.
 
 *Second Horizon* turned toward the planet.
 
+<!--
+
 ## Reference
 
 Initial text:
@@ -273,3 +274,5 @@ and to the crew.
 
 Pretty soon we will be landing on this beautiful colorful planet and hopefully
 we’ll get to understand, what actually has happened to the previous spaceship.
+
+-->

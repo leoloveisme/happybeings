@@ -127,6 +127,8 @@ The Earth crew, the first expedition, and An Var entered the ship.
 
 Str So Fle and Ya Sha remained on the shore, holding each other beneath the blue and orange moons.
 
+<!--
+
 ## Reference
 
 Initial text:
@@ -146,3 +148,5 @@ back to Earth tomorrow.
 Bye Str. 
 
 "He was indeed very soft" thought I this very moment, when he hugged me.
+
+-->
