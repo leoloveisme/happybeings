@@ -2,6 +2,7 @@
 
 For the first three days after leaving XYZ, nobody asked what they should do when they reached Earth.
 
+Let's go home.
 The question existed in every room of *Second Horizon*. It lived in the silence after meals, in the long hours at the viewing glass, in the way Nick checked systems that did not need checking and then stopped himself. It lived in Chen’s notebook, still unopened on the table beside his bed. It lived in Olga’s hands as they moved through the navigation field, guiding the ship along the long curve home.
 
 But nobody made a plan.
@@ -153,4 +154,6 @@ Then Olga did.
 Initial text:
 
 
+Let's go home.
+Let's go home.
 Let's go home. 

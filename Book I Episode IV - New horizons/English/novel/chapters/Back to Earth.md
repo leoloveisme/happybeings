@@ -1,3 +1,4 @@
+# Back to Earth
 # Back on Earth
 
 Earth appeared first as a blue brightness in the dark.
@@ -182,8 +183,10 @@ Initial text:
 
 Background music:
 
+Beautiful New World / Home Sweet Home
+Danny Elfman
 Beautiful New World / Home Sweet Home Danny Elfman
 
+Life on Earth is pleasant and amazing, however after our expedition to planet XYZ I understand that we still have a long way to go.
 Life on Earth is pleasant and amazing, however after our expedition to planet
 XYZ I understand that we still have a long way to go.
-

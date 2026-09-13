@@ -1,11 +1,16 @@
 # Time to say "Goodbye"
 
+"We are originally from Earth." said A Ram. 
+"Long long time ago we were transported here"
 The last morning on XYZ arrived with both moons still visible.
 
+*******
 The blue moon had not yet gone below the western hills. The orange moon was pale in the new sun, almost yellow, hovering above the sea like a second dawn. The shore around *Second Horizon* was full of movement: Earth crew members, the beings awakened from *First Horizon*, and XYZ friends who had come simply to be present.
 
+The whole previous expedition and all of our crew beside Str So Fle will go back to Earth tomorrow. 
 No one hurried.
 
+***********
 The first expedition had been brought from its hidden place the previous evening. Its robots, androids, and cyborgs had woken carefully, one by one, held in the warmth of the collective mind until they could understand where they were and how long Earth had been waiting. Now they stood near the ship, disoriented but safe. Quirong had spoken with each of them for a long time. Then it had returned to Ya Sha’s side.
 
 It was not returning with them.
