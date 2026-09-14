@@ -304,6 +304,7 @@ Collective mind and energy of XYZ: "We'll let them come and will communicate wit
 - What's happened to the previous expedition?
 - We switched everything off.
 - Why?
+- To keep our world undisturbed. 
 - To keep our world undisturbed.
 - Can we see it?
 - Of course.

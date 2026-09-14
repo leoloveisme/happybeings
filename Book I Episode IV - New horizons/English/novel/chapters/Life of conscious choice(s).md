@@ -133,9 +133,32 @@ The being’s laughter softened. “You thought I was falling.”
 
 “I was.” She looked back at the lake. “Just not in the direction you expected.”
 
-For the first time since leaving Earth, Quirong seemed to have no prepared
-response. It lowered its hands slowly. The silence between them did not feel
-empty. It felt newly made.
+Quirong and Ya (Sha) and Kho Pa all around them
+
+She hugged him. "Ups, you are not soft. I like soft. I'm soft. See" and she
+pinched herself. My brother is soft, too. and she stroke the rabbit looking
+animal who she was carrying with her. "This is my brother" said she. 
+
+"I'm soft inside." said Quirong.
+
+"You're amusing. You amuze me." 
+
+"What are you?" she already knew the answer, but she wanted to play. "What are
+you doing?"
+
+"I'm ... ." For the first time since leaving Earth, Quirong seemed to have no
+prepared response. It lowered its hands slowly. The silence between them did
+not feel empty. It felt newly made. "What are you doing?"
+
+"Oh, we're experiencing. Do you want to experience with us?"
+
+Quirong was puzzled by "we" but didn't say anything.
+
+"What do I have to do?"
+
+"Nothing. Just be. Be with us."
+
+"Ok. I can do that."
 
 An Var placed one hand against the stranger’s shoulder. “This is Ya Sha.”
 

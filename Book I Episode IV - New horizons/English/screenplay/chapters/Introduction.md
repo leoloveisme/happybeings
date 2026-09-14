@@ -83,6 +83,7 @@ Some of the characters of the story are: an intersex being, an artificially crea
 
 The main objective of the book is to show you as a reader that living a free and happy life in the world where money doesn't exist even as a term is not only, but absolutely possible and hopefully you can read in the book how you, yes you the one, who is reading this book, can come to such a (way of) living, too.
 
+If you want to contribute to the story you can. Please read README for more information.
 If you want to contribute to the story you can. Please read README for more information. 
 
 -->

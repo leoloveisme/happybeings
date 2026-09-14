@@ -427,5 +427,5 @@ Of course he can. We can be whatever / whoever we want to be and we don't need a
 
 How about travelling? 
 
+Oh, we can travel, too, however we usually don't do that. We have everything we need on our planet and we can transfer ourselves to any location we want to on our planet or onto any other planet of our choice. We just need to "see" where we want to "go" and we "go" there.
 Oh, we can travel, too, however we usually don't do that. We have everything we need on our planet and we can transfer ourselves to any location we want to on our planet or onto any other planet of our choice. We just need to "see" where we want to "go" and we "go" there. 
-

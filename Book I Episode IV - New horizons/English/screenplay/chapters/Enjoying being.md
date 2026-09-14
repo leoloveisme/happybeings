@@ -169,4 +169,3 @@ They enjoyed their planet and both moons of the planet. (The blue and the orange
 Some beings would change the colours of their skin to match the planet's moons colours and would become orange and blue, yellow and blue, yellow and green, blue and red, etc
 
 Now they run to the sea to take a swim and have sex there.
-
