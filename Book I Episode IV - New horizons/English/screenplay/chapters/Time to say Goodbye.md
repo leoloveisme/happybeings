@@ -284,7 +284,7 @@ Str So Fle and Ya Sha remain together on the shore beneath the two moons. Around
 
 CONTINUE INTO: LET'S GO HOME.
 
-<!-- Continuity: First Horizon's crew has already awakened in Everything new for Quirong. All its returning crew members board Second Horizon here, alongside Chen, Olga, Peijin, Nick, and An Var. Str So Fle remains on XYZ. The physical disposition of First Horizon itself is not established by this chapter. Each telepathic farewell gift is offered and accepted explicitly. Launch and the return journey follow in Let's go home. -->
+<!-- Continuity: First Horizon's crew has already awakened in Everything new for Quirong. All its returning crew members board Second Horizon here, alongside Chen, Olga, Peijin, Nick, and An Var. Str So Fle remains on XYZ. The physical disposition of First Horizon itself is not established by this chapter. Each telepathic farewell gift is offered and accepted explicitly. Launch and the return journey follow in Let's go home. 
 
 
 ## Reference — Original screenplay text
@@ -308,3 +308,5 @@ The whole previous expedition and all of our crew beside Str So Fle will go back
 Bye Str. 
 
 "He was indeed very soft" thought I this very moment, when he hugged me.
+
+-->

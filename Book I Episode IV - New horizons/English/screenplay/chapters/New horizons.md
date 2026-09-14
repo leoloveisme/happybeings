@@ -281,7 +281,7 @@ An Var slows to match the visitors' pace.
 
 CONTINUE INTO: LIFE OF CONSCIOUS CHOICE(S).
 
-<!-- Continuity: the crew learns why First Horizon was hidden but does not see the ship or its crew here. An Var will guide them there later. No telepathic entry into the visitors' minds is depicted. The collective exchange is conveyed through the XYZ beings' attention and movement; its original dialogue remains in Reference. -->
+<!-- Continuity: the crew learns why First Horizon was hidden but does not see the ship or its crew here. An Var will guide them there later. No telepathic entry into the visitors' minds is depicted. The collective exchange is conveyed through the XYZ beings' attention and movement; its original dialogue remains in Reference. 
 
 
 ## Reference — Original screenplay text
@@ -298,17 +298,13 @@ Collective mind and energy of XYZ: "Shall we contact them?"
 Collective mind and energy of XYZ: "We'll let them come and will communicate with them once they come."
 
 
-
-
-<!--
 - What's happened to the previous expedition?
 - We switched everything off.
 - Why?
 - To keep our world undisturbed. 
-- To keep our world undisturbed.
 - Can we see it?
 - Of course.
--->
+
 
 - What's happened to the previous expedition?
 - The collective mind of XYZ hid the ship and all its crew.
@@ -318,4 +314,4 @@ Collective mind and energy of XYZ: "We'll let them come and will communicate wit
 - Can we see it?
 - Not yet. An Var will take you there later, when you are ready.
 
-```
+-->

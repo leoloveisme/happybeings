@@ -319,7 +319,7 @@ Second Horizon continues towards the small blue world.
 
 CONTINUE INTO: BACK TO EARTH.
 
-<!-- Tone: the return is reflective and unhurried. Allow disagreement and difficult feelings without an argument or a new crisis. Earth approach and landing belong to Back to Earth. -->
+<!-- Tone: the return is reflective and unhurried. Allow disagreement and difficult feelings without an argument or a new crisis. Earth approach and landing belong to Back to Earth. 
 
 
 ## Reference — Original screenplay text and development note
@@ -332,8 +332,7 @@ Preserved for further development; the sequences above are the active draft.
 
 Let's go home. 
 
-<!-- Development note — Possible Bee flashback
+Development note — Possible Bee flashback
 During the return journey, consider revisiting the pebble request from Departure in a flashback. This would be Bee’s first on-screen appearance: reveal his face and physical presence, connecting the previously heard voice with Chen’s nephew, Bijaksana Tram Tu (Bee / Tram). Keep him unseen in the earlier sequences. Placement here is tentative.
--->
 
-```
+-->

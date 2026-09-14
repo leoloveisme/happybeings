@@ -280,7 +280,7 @@ Stay with the shore as the sound of water fills the scene.
 
 CONTINUE INTO: ENJOYING BEING.
 
-<!-- Continuity: First Horizon and its crew remain missing; the cause is not revealed here. The invitation is the crew's interpretation of the signal. The next shore sequence is independent of their viewpoint; they do not watch Col An and Sai Ya. -->
+<!-- Continuity: First Horizon and its crew remain missing; the cause is not revealed here. The invitation is the crew's interpretation of the signal. The next shore sequence is independent of their viewpoint; they do not watch Col An and Sai Ya. 
 
 
 ## Reference — Original screenplay text
@@ -305,3 +305,5 @@ The spaceship did an initial contact with Earth in which they sent a message of 
 Our team has had the mission to find out, what has happened to the spaceship and to the crew.
 
 Pretty soon we will be landing on this beautiful colorful planet and hopefully we’ll get to understand, what actually has happened to the previous spaceship.
+
+-->

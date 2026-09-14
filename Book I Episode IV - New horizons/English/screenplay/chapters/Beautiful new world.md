@@ -258,7 +258,7 @@ An Var waits beside the path. Olga joins her.
 
 CONTINUE INTO: EVERYTHING NEW FOR QUIRONG.
 
-<!-- Continuity: this begins the morning after the telepathic encounters in Life of conscious choice(s). Olga's interview is a further excerpt from her earlier recording. Her meadow conversation remains private to Olga and An Var. XYZ's Earth origins are revealed to Olga here; the missing expedition remains unseen in this chapter. -->
+<!-- Continuity: this begins the morning after the telepathic encounters in Life of conscious choice(s). Olga's interview is a further excerpt from her earlier recording. Her meadow conversation remains private to Olga and An Var. XYZ's Earth origins are revealed to Olga here; the missing expedition remains unseen in this chapter. 
 
 ## Reference — Original screenplay text
 
@@ -469,3 +469,5 @@ starting point of us becoming one.
 Beings on the planet could take literally any appearance. They could be trees,
 stones, water that flows on the planet and even air and they could literally be
 any moving and breathing being.
+
+-->

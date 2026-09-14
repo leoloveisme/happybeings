@@ -270,7 +270,7 @@ FADE OUT.
 
 END OF EPISODE IV — NEW HORIZONS.
 
-<!-- Continuity: Bee's face was revealed in the Let's go home flashback; his agreed self-introduction is spoken here. An Var knows about the pebble because Chen told her. Only the original Earth pebble is shown; no unestablished XYZ sample is added. All of Chen's nieces share the homecoming. Str So Fle remains on XYZ with Ya Sha. -->
+<!-- Continuity: Bee's face was revealed in the Let's go home flashback; his agreed self-introduction is spoken here. An Var knows about the pebble because Chen told her. Only the original Earth pebble is shown; no unestablished XYZ sample is added. All of Chen's nieces share the homecoming. Str So Fle remains on XYZ with Ya Sha. 
 
 ## Reference — Original screenplay text
 
@@ -302,6 +302,4 @@ Life on Earth is pleasant and amazing, however after our expedition to planet XY
 >>>>>>> 23c44b3 (updates):Book I Episode IV - New horizons/English/screenplay/chapters/Back to Earth.md
 
 
-
-
-```
+-->

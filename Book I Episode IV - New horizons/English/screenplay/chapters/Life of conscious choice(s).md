@@ -353,7 +353,7 @@ The lake holds the trees and the sky.
 
 CONTINUE INTO: BEAUTIFUL NEW WORLD.
 
-<!-- Continuity: Kho Pa is introduced by name in his small form before his later transformation. Olga's and Peijin's first telepathic exchanges occur here with explicit permission. The later-day transition allows time between these encounters; the following chapter begins the morning after the telepathic encounter. First Horizon remains unseen. -->
+<!-- Continuity: Kho Pa is introduced by name in his small form before his later transformation. Olga's and Peijin's first telepathic exchanges occur here with explicit permission. The later-day transition allows time between these encounters; the following chapter begins the morning after the telepathic encounter. First Horizon remains unseen. 
 
 
 ## Reference — Original screenplay text
@@ -429,3 +429,5 @@ How about travelling?
 
 Oh, we can travel, too, however we usually don't do that. We have everything we need on our planet and we can transfer ourselves to any location we want to on our planet or onto any other planet of our choice. We just need to "see" where we want to "go" and we "go" there.
 Oh, we can travel, too, however we usually don't do that. We have everything we need on our planet and we can transfer ourselves to any location we want to on our planet or onto any other planet of our choice. We just need to "see" where we want to "go" and we "go" there. 
+
+-->

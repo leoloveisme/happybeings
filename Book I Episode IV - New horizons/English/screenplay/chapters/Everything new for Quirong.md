@@ -308,7 +308,7 @@ A wave reaches the shore. Its bright edge catches the colours of both moons.
 
 CONTINUE INTO: TIME TO SAY GOODBYE.
 
-<!-- Adaptation continuity: the first expedition's awakening, described retrospectively in the novel's Time to say Goodbye, is staged here before Quirong's transformation. The farewell should refer back to this reunion rather than repeat it. Quirong is already a valued conscious being before changing form; transformation is their chosen experience, not a condition for love or personhood. The recollection of travelling with the crew is spoken after transformation, following the novel's revision note. -->
+<!-- Adaptation continuity: the first expedition's awakening, described retrospectively in the novel's Time to say Goodbye, is staged here before Quirong's transformation. The farewell should refer back to this reunion rather than repeat it. Quirong is already a valued conscious being before changing form; transformation is their chosen experience, not a condition for love or personhood. The recollection of travelling with the crew is spoken after transformation, following the novel's revision note. 
 
 
 ## Reference — Original screenplay text
@@ -323,3 +323,5 @@ Quirong you know that you have to be deconstructed to become one of us. Are you 
 "Do you know in what kind of shape do you want to be once the deconstruction is completed?"
 "I'll be me, i.e. in my shape and form, however I'll be both strong, soft and flexible and I want to have the same organic brain like you have Ya  and be organic, like the majourity of you ones, who move as quickly as some gentle winds" answered Quirong "and I'll have a new name. I'll be Str (pronounced "styr") So Fle" he said.
 "I'll be me, i.e. in my shape and form, however I'll be both strong, soft and flexible and I want to have the same organic brain like you have Ya  and be organic, like the majourity of you ones, who move as quickly as some gentle winds" answered Quirong "and I'll have a new name. I'll be Str (pronounced "styr") So Fle" he said. 
+
+-->
