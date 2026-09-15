@@ -288,7 +288,6 @@ CONTINUE INTO: LIFE OF CONSCIOUS CHOICE(S).
 
 Preserved for further development; the sequences above are the active draft.
 
-```markdown
 # New horizons
 
 Background music: ???

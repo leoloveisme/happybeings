@@ -228,7 +228,6 @@ CONTINUE INTO: VAST VAST SPACE.
 Preserved for further adaptation; the screenplay sequences above are the active
 draft.
 
-```
 # Departure
 
 
@@ -763,7 +762,3 @@ Olga looked into the vastness ahead.
 
 
 -->
-
-
-
-

@@ -294,7 +294,7 @@ We are adapted to the chill, wind, rain, etc.
     • Yes, I, we do.
 
 
-```
+
 • Can you speak?
 
 • Yes, we can speak, however because we communicate mostly telepathically, there is no need for us to speak.
@@ -304,7 +304,8 @@ We are adapted to the chill, wind, rain, etc.
 • Yes, I, we do.
 
 
-```
+
+
 We don't meditate, because we're always conscious. 
 
 We are in the constant conscious presence and we live a conscious life that's the reason / why we don’t meditate, unless we want to create something, then meditate something into existence using the all power around us: the power of our planet, our moons and sometimes, though very rarely, even the power or neighbouring planets.
@@ -328,7 +329,8 @@ meditate something into existence using the all power around us: the power of
 our planet, our moons and sometimes, though very rarely, even the power or
 neighbouring planets.
 
-```
+
+
 • Energy is all around us, everything is energy.
 
 • Yes, we know that already and we have a healer amongst us, who can see and feel energies, to the degree which other of us cannot do.
@@ -347,7 +349,7 @@ neighbouring planets.
 • And we love to solve mental tasks.
 
 
-```
+
 We don’t have any taboos in our society. In our society everything is allowed,
 which is based on love and all our actions and everything in our “society” is
 based on love.

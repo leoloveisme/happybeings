@@ -326,7 +326,6 @@ CONTINUE INTO: BACK TO EARTH.
 
 Preserved for further development; the sequences above are the active draft.
 
-```markdown
 # Let's go home
 
 

@@ -1,5 +1,285 @@
 # Life of conscious choice(s)
 
+There is always something going on, it's just a matter of where exactly do you direct your attention to; then everything is communicating: the trees, the mushrooms, the bugs, the birds; everything communicates, speaks, sings, makes music and everything is recorded into energy. If you stop and learn how to be present in this very moment now and here, here and now and learn to listen and understand what’s going on in the world around you, you’ll see everything through the eyes of the universe. 
+
+All in life is happening for you, happens for you and will happen for you - you just need to appreciate it.
+~~
+
+<!--
+
+## Record of meaningful encounter: Nick Amalia Pantonelli-Bergmann
+
+**Interviewer:** Would you tell me your name?
+
+**Nick:** Nick Amalia Pantonelli-Bergmann. I build things. I repair things. I
+like a system that tells the truth about how it works.
+
+**Interviewer:** And how do you describe yourself?
+
+**Nick:** I am intersex. I was naturally conceived and naturally born. I was not
+corrected before I arrived. That is not a tragedy. It is simply my beginning.
+
+**Interviewer:** Not corrected... how? What do you mean?
+
+**Nick:** I was born with female genitalia. said NIck looking directly into the
+eyes of the interviewer. 
+
+**Interviewer:** What do you expect to find at XYZ?
+
+**Nick:** A system I cannot diagram. I dislike that already.
+
+**Interviewer:** And what do you hope to find?
+
+**Nick:** That it is real.
+
+- - -
+// How Ya Sha got introduced here? Until now it was An Var who was their leader
+\- the one who has shown the way, who lead them. 
+
+Ya Sha led them away from the shore and into a forest where nothing was quiet.
+
+At first, Nick thought the sound came from insects. Then he heard a rhythm
+within the clicking, then a counter-rhythm, then something like a distant chord
+travelling through the trunks of the trees. Mushrooms shone softly at the
+roots. Small birds moved between branches with flashes of blue and yellow. The
+wind changed direction and the whole forest changed key.
+
+“There is always something going on,” Ya Sha said. “It depends where you put
+your attention.”
+
+She had chosen a form that day with deep green skin at her throat and golden
+markings around her eyes. Her hair fell in a dark, heavy wave almost to her
+waist. As she walked, the grasses bent toward her ankles, not from wind but in
+recognition.
+
+Nick tried to follow the sound through the trees. “You mean everything is
+communicating?”
+
+“Everything is communicating,” Ya Sha said. “Trees. Mushrooms. Bugs. Birds.
+Water. Stones. You call some of them silent because you do not yet know how
+they speak.”
+
+Peijin paused beside a low, white fungus growing from an old root. She held her
+hand near it without touching. “It is singing,” she said.
+
+Ya Sha smiled. “Yes.”
+
+“Very quietly.”
+
+“It does not need to be loud. It has all the time it needs.”
+
+They reached a clearing where the earth rose in a broad mound of silver-grey
+stone. No building stood there. No machines. A shallow pool lay at its centre,
+perfectly clear, reflecting a piece of the blue moon even in daylight.
+
+Nick looked for pipes, pumps, cables, or a source of power. He found nothing.
+
+“Where is the system?” he asked.
+
+Ya Sha tilted her head. “This is the system.”
+
+She touched the stone. The pool responded with one widening circle of water.
+
+“All our experiences enter the conscious energy space,” she said. “Nothing is
+taken from us. Nothing needs to be stored in a thing. When someone wants to
+understand, they can ask. When they are ready, the knowledge is there.”
+
+“And who maintains it?” Nick asked.
+
+“Everyone.”
+
+“That is not an answer.”
+
+“It is the answer.”
+
+Chen looked down into the water. “On Earth, we share knowledge too. But we use
+houses, records, devices, and people who care for them.”
+
+“That is beautiful,” Ya Sha said. “You have made so many ways to help one
+another remember.”
+
+Her approval was so free of irony that Chen did not know what to do with it.
+
+Nick crouched beside the pool. In its reflection he saw his own face, then the
+roots beneath the clearing, then a flock of birds above the forest, all without
+the water seeming to move. He stood quickly.
+
+“I did not ask to see that,” he said.
+
+The image was gone at once.
+
+Ya Sha’s expression changed. “I am sorry. The pool offered because you were
+looking. It should have waited.”
+
+“The pool can decide?”
+
+“Everything can decide.”
+
+She rested both palms against the stone. The forest around them seemed to
+become gentler, as if it too had heard the apology.
+
+After a while, Peijin asked, “Do all of you choose your forms?”
+
+“Yes,” Ya Sha said. “Or choose not to change. Both are good choices.”
+
+“On Earth, people change their appearance when they want to,” Nick said. “There
+are technologies. Bodies can be altered, rebuilt, healed, enhanced.”
+
+“And do you enjoy being you?” Ya Sha asked him.
+
+The question was not a challenge. That made it more difficult.
+
+Nick thought of the names people had given him, the questions they had once
+asked as though he were a puzzle, and the time it had taken to understand that
+no explanation was required for him to exist.
+
+“Yes,” he said. “I do. I enjoy being me as I am now.”
+
+Peijin touched his arm. “I know you do.”
+
+Nick smiled. “And you?”
+
+“I enjoy being me,” Peijin said. “Not because I have never changed. Because I
+have.”
+
+If in the upper section we replace Ya Sha with An Var it absolutely makes sense
+to me personally. 
+
+\***\***
+
+Here we need a scene where we introduce Ya Sha. Or Ya Sha introduces herself by
+getting into the frame. We need to brainstorm how? Has she fallen from a tree?
+(I know it is a cliche, however it would have been funny) or something else?
+
+And this is the point where Quirong falls for her. 
+
+Actually she has fallen from the tree and Quirong "fell" for her. I guess we
+can build on that. Using there two alegories. Fall and "fall". 
+
+It also would be could if we could come with the event of inverted fall - e.g.
+fall from the bottom of the lake onto it's shore
+
+\***\***
+
+Ya Sha looked at them both with open delight. “Then you already know a lot
+about conscious choice.”
+
+The clearing brightened. A flock of small birds crossed the sun and made a
+moving shadow over the stone.
+
+“My brother enjoyed being a small, soft creature for a long time,” Ya Sha said.
+“He had ears like this.” She lifted two fingers above her head and laughed.
+“And he liked hiding in warm places.”
+
+“Kho Pa?” Olga asked. // Again, how did he know the name? It needs to be
+written out. 
+
+“Kho Pa.”
+
+“Where is he?” Nick asked. “We wanted to meet him again.”
+
+Ya Sha opened her arms toward the forest, the pool, the sky, and the ground
+beneath their feet.
+
+“He is here.”
+
+Olga looked around. “Where?”
+
+“Everywhere.”
+
+The word did not become clearer when Ya Sha said it.
+
+“Did he die?” Peijin asked softly.
+
+“No,” Ya Sha said. “He changed.”
+
+She sat on the stone and drew a line through the dust with one finger. The line
+became a small ridge. The ridge grew into the suggestion of a mountain, then
+relaxed back into flat earth.
+
+“To make a mountain, many beings join together,” she said. “A mountain is not
+less alive because it is slow. A sea is not less alive because it is wide. Kho
+Pa wanted to know what it felt like to be unbounded. So he became part of
+everything around us.”
+
+Chen looked through the trees, as though the small animal might step out from
+behind one of them. “Can he still think?”
+
+“Of course.”
+
+“Can he know we are here?”
+
+“Of course.”
+
+Nick felt the back of his neck tighten. “Can he hear us?”
+
+“He can perceive you,” Ya Sha said. “But he will not enter your consciousness
+without permission. That would be violence, even if he meant no harm.”
+
+The word settled among them. Violence. XYZ used it for an uninvited movement of
+mind, just as it had used it for Earth’s distant exploration. Nick understood
+the principle before he was comfortable with it.
+
+“May I speak with him?” Olga asked.
+
+Ya Sha’s face warmed. “Yes. If you want to.”
+
+Olga stepped away from the group and looked up at the empty air. “Kho Pa,” she
+said. “You may enter my consciousness. I want to hear you.”
+
+Nothing happened that anyone else could see.
+
+Then Olga’s breath caught. Her eyes filled with tears. She laughed once,
+surprised, and covered her mouth with both hands.
+
+“He is saying hello,” she whispered. “He is not only everywhere. He is happy
+everywhere.”
+
+Peijin watched her for a long moment. “May I?”
+
+“You may,” Ya Sha said.
+
+Peijin did not close her eyes. “Kho Pa, I give you permission. Please speak
+with me.”
+
+The forest held its breath.
+
+Peijin’s face changed first to astonishment, then to something too wide for
+astonishment. She laughed through tears. Her hands opened at her sides as
+though she could feel rain falling from a clear sky.
+
+“I can feel the roots,” she said. “The birds. The water under the stone. I can
+feel him being all of it.”
+
+For one brief moment, she turned toward An Var and went still.
+
+“You were thinking something,” Peijin said.
+
+An Var smiled.
+
+“I heard it,” Peijin said, half laughing, half overwhelmed.
+
+“Kho Pa made the space wider for you,” An Var said. “Only for a little while.”
+
+Nick took one step forward, then stopped. The engineer in him wanted to
+understand the mechanism. The rest of him was afraid of being understood too
+quickly.
+
+Ya Sha saw both responses and asked nothing.
+
+“You do not have to choose now,” she said. “You have all the time you need. All
+the time of eternity.”
+
+Nick looked at the pool, the stone, the forest, and Peijin’s radiant face.
+Nothing there asked to be owned, solved, or improved. It only asked to be met.
+
+For the first time since arriving on XYZ, he allowed himself not to know how
+something worked.
+
+~~
+-->
+
+## Revised chapter text
 There is always something going on, it's just a matter of where exactly do you
 direct your attention to; then everything is communicating: the trees, the
 mushrooms, the bugs, the birds; everything communicates, speaks, sings, makes
@@ -133,6 +413,9 @@ The being’s laughter softened. “You thought I was falling.”
 
 “I was.” She looked back at the lake. “Just not in the direction you expected.”
 
+For the first time since leaving Earth, Quirong seemed to have no prepared
+response. It lowered its hands slowly. The silence between them did not feel
+empty. It felt newly made.
 Quirong and Ya (Sha) and Kho Pa all around them
 
 She hugged him. "Ups, you are not soft. I like soft. I'm soft. See" and she

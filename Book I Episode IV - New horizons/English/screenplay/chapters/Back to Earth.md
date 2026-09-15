@@ -277,7 +277,6 @@ END OF EPISODE IV — NEW HORIZONS.
 Original text, including inherited merge-conflict markers, preserved verbatim
 below. The sequences above are the active draft.
 
-```
 # Back to Earth
 
 
@@ -290,16 +289,10 @@ Danny Elfman
 
 Life on Earth is pleasant and amazing, however after our expedition to planet XYZ I understand that we still have a long way to go.
 
-Life on Earth is pleasant and amazing, however after our expedition to planet XYZ I understand that we still have a long way to go. 
 
+Book I Episode IV - New horizons/English/Back to Earth.md
 
-<<<<<<< HEAD:Book I Episode IV - New horizons/English/Back to Earth.md
-
-
-
-=======
-
->>>>>>> 23c44b3 (updates):Book I Episode IV - New horizons/English/screenplay/chapters/Back to Earth.md
+23c44b3 (updates):Book I Episode IV - New horizons/English/screenplay/chapters/Back to Earth.md
 
 
 -->
