@@ -35,7 +35,7 @@ A moment. Laughter reaches the window from below.
 **INTERVIEWER (O.S.)** What do you hope to find?
 
 **CHEN** The truth. And a way to meet it without taking anything from it.
-
+ 
 ## Sequence 2 — The city waking
 
 EXT. HOUSE OF MEANINGFUL ENCOUNTERS — BALCONY — MORNING
@@ -52,7 +52,7 @@ In the square, children practise choreoyoga. An elder on a balcony copies their
 movements, extravagantly wrong, doing that on purpose. The children collapse
 into laughter.
 
-At the harbour waits SECOND HORIZON, white and still above the water.
+At the harbour waits SECOND HORIZON shiny in the morning light and still above the water.
 
 OLGA AHLAM PELIN-LURIE joins Chen. Navigation lights pulse beneath the
 transparent skin of her wrist.

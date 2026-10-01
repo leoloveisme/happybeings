@@ -1,0 +1,52 @@
+{
+  "fps": 24,
+  "duration": 126,
+  "crawl_start": 12,
+  "paragraphs": [
+    {
+      "text": "On Earth, we stopped using money so long ago that most of us have forgotten it.",
+      "texture_y": 0,
+      "approx_entry_seconds": 12.0
+    },
+    {
+      "text": "I saw some once, in a history lesson. Little metal circles. Pieces of paper. Numbers on a screen. It was strange to think you might need those things before someone would give you food.",
+      "texture_y": 241,
+      "approx_entry_seconds": 19.1
+    },
+    {
+      "text": "Now we grow things, build things, and share what we know. We look after each other because we care. There are no wars anymore.",
+      "texture_y": 746,
+      "approx_entry_seconds": 33.96
+    },
+    {
+      "text": "We still have things to learn. Sometimes it takes a lot of talking to understand one another.",
+      "texture_y": 1075,
+      "approx_entry_seconds": 43.65
+    },
+    {
+      "text": "Our cities float on the sea. Our ships travel between planets. Humans, robots, androids, and cyborgs live and explore together. There are so many ways to be someone.",
+      "texture_y": 1404,
+      "approx_entry_seconds": 53.34
+    },
+    {
+      "text": "Years ago, a ship called First Horizon reached a planet we call XYZ. Its crew sent word of breathable air, oceans, and two moons.",
+      "texture_y": 1821,
+      "approx_entry_seconds": 65.62
+    },
+    {
+      "text": "Then their messages stopped. The ship disappeared.",
+      "texture_y": 2150,
+      "approx_entry_seconds": 75.3
+    },
+    {
+      "text": "There were friends on that ship.",
+      "texture_y": 2391,
+      "approx_entry_seconds": 82.4
+    },
+    {
+      "text": "Now Second Horizon is going to look for them.",
+      "texture_y": 2544,
+      "approx_entry_seconds": 86.9
+    }
+  ]
+}
