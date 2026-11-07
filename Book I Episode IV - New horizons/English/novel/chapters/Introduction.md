@@ -45,5 +45,3 @@ yes you the one, who is reading this book, can come to such a (way of) living,
 too.
 
 If you want to contribute to the story you can. Please read README for more information.
-
-If you want to contribute to the story you can. Please read README for more information.
