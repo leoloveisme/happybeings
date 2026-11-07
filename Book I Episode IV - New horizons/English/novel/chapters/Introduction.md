@@ -59,5 +59,3 @@ information.
 information.
 
 information.
-
-information.
