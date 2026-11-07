@@ -47,5 +47,3 @@ too.
 If you want to contribute to the story you can. Please read README for more information.
 
 If you want to contribute to the story you can. Please read README for more information.
-
-information.
