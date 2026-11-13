@@ -290,9 +290,7 @@ It was a good instruction. Chen hoped it was good enough.
 
 As they boarded, the city became quiet—not with fear, but with attention.
 
-*Second Horizon* rose from the water on a column of light. The gardens, bridges,
-
-and dancing children grew small beneath them. Earth curved away, blue and
+*Second Horizon* rose from the water on a column of light. The gardens, bridges, and dancing children grew small beneath them. Earth curved away, blue and
 
 beloved.
 
